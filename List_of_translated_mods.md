@@ -458,4 +458,9 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=624793674
 # Shadow Ops Classes For LWOTC
 https://steamcommunity.com/sharedfiles/filedetails/?id=2283957200
 
-* Russian 
+* Russian
+
+# [WOTC] Stukov's War Gene Mods
+https://steamcommunity.com/sharedfiles/filedetails/?id=2728408174
+
+* Russian
