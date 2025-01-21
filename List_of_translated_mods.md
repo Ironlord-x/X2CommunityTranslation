@@ -458,4 +458,24 @@ https://steamcommunity.com/sharedfiles/filedetails/?id=624793674
 # Shadow Ops Classes For LWOTC
 https://steamcommunity.com/sharedfiles/filedetails/?id=2283957200
 
-* Russian 
+* Russian
+
+# A Harder War: The Ethereal Restoration
+https://steamcommunity.com/sharedfiles/filedetails/?id=2726953893
+
+* Russian
+
+# [WoTC] Muton Hunter
+https://steamcommunity.com/sharedfiles/filedetails/?id=2182049731
+
+* Russian
+
+* # [WOTC] Stukov's War Gene Mods
+https://steamcommunity.com/sharedfiles/filedetails/?id=2728408174
+
+* Russian
+
+# [WOTC] LW2 Classes and Perks
+https://steamcommunity.com/sharedfiles/filedetails/?id=1335226018
+
+* Russian
